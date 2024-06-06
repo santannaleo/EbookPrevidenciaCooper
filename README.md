@@ -39,5 +39,3 @@ Assim como o universo é vasto e cheio de mistérios, o universo financeiro tamb
 Caros jovens físicos financeiros, chegamos ao fim de nossa jornada pela teoria da aposentadoria. Lembre-se sempre: investir cedo é como acelerar partículas em um colisor de hádrons financeiro - você está criando energia financeira que pode mudar o curso de sua vida. Que os juros compostos estejam sempre a seu favor!
 
 ---
-
-Espero que essa abordagem combine o humor característico do Sheldon Cooper com insights financeiros importantes para o público jovem.
